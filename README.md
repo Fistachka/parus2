@@ -31,4 +31,8 @@ No kogda pechal' v moej dushe ya vspominayu
 Previous lesson:
 ![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/082046de-72f7-4c3e-a93f-e43f517e6561 =200x200)
 stolbitsa.com/fistachka/bandito2<br><br>
+![3](https://github.com/user-attachments/assets/4c650f54-7bd9-4996-a342-6203785e415b)
+![4](https://github.com/user-attachments/assets/cd8d3c80-e852-43d3-8eb4-892eaaa0da83)
+
+
 
